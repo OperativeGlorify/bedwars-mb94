@@ -1,4 +1,4 @@
-
+bedwars stealth Scripts is the best bedwars Script, featuring teleport and unlimited stamina. Safe and powerful for all your needs.
 
 
 
